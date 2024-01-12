@@ -1,1 +1,2 @@
-Lucinda Walker
+Lucinda Camacho
+camacluc@oregonstate.edu
